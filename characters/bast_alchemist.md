@@ -2,7 +2,7 @@
  - Celé jméno: ***Bastian Tarben***
  - Povolání dle pravidel: ***Alchymista***
  - Přezdívka: *Bast*
- - Povolání: *Lovec démonů*
+ - Povolání: *Lovec monster*
 
 #### Vzezření
 Bast je 17 tiletý muž velmi světlé pleťi s ebenově tmavými vlasy, mezi kterými mu prosvítá na vršku hlavy dlouhá jizva. Jeho oči mají barvu věčně zmrzlého ledu a stejně tak působí i jeho pohled. Na tváři má strniště, které směrem k bradě nabírá temně zrzavý ostín. Na krku se mu houpe železný amulet tvarovaný jako hlava šelmy. Části hrudi a rukou pokrývá několik ošklivých jizev po popáleninách. Ty však schovává pod obyčejnou lněnou košilí s dlouhými rukávy. Dále pak nosí tmavé kalhoty a na opasku několik taštic, v kterých uchovává flakonky s elixíry. Svůj osobní zápisník nosí připoután na opasku přehozeném přes rameno. A v neposlední řadě u Bastova levého boku má své místo blýskavý, ale poněkud zubatý meč. 
